@@ -1,5 +1,5 @@
 # MUANG_LOI_CMU
 
-1. Pand,
-2. Ice,
-3. Angie
+1. Pand Jong,
+2. Ice za,
+3. Angie lnwZa
